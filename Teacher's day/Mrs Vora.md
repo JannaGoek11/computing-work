@@ -9,8 +9,7 @@ Dear Mrs Vora,
   And if anyone deserves a day off from school,
   I have no doubts that it should be you!
   Wishing a very Happy Teacher's Day from me to you!
-  
-  Thank you!
+  Thank you for all that you do!
   
   
 ~ From a very loving 1C
