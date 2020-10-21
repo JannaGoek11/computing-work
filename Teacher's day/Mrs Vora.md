@@ -21,4 +21,3 @@ Dear Mrs Vora,
   Thank you for all that you do!
   
   
-~ From a very loving 1C
